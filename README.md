@@ -1,4 +1,4 @@
-### Hi there 👋
+### Vinde deste perfil para apreciar meus projetos e aprendizados  👋
 
 <!--
 **Tuizew/Tuizew** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
